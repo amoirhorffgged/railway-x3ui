@@ -1,5 +1,5 @@
-آموزش کامل در مسیر زیر 
+آموزش کامل متنی --> 
 https://railwayx3ui.page.gd/
 
-دونیت 
+دونیت ها --> 
 https://wallets.arvin341az.workers.dev/
